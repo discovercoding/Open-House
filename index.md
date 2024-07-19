@@ -1,4 +1,3 @@
-# Open House
 Come see Curtis Sorensen before he moves to Carlsbad!
 
 ##  Where
